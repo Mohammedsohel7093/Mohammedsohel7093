@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mohammedsohel7093
-- 👀 I’m interested in Electronics 
+- 👀 I’m interested in software  
 - 🌱 I’m currently learning Btech
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me linkdln 
